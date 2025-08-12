@@ -1,6 +1,6 @@
 - 👋 Hi, I'm @freak3dot
-- 👀 I'm interested in all things geeky.
-- 🌱 I'm currently learning eCommerce.
+- 👀 I'm a Cyberpunk Techno-mage.
+- 🌱 I'm currently employeed in eCommerce.
 - 📫 Look for me by the same name on Twitter.
 
 <!---
